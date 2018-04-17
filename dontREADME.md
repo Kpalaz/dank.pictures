@@ -1,1 +1,0 @@
-![Alt Text](https://i.ytimg.com/vi/H35akGb-hFA/maxresdefault.jpg)![Alt Text](https://pbs.twimg.com/profile_images/717399180944146432/FZcSmAgC_400x400.jpg)
